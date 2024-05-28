@@ -1,5 +1,5 @@
 ### About
-- Financial Associate, 2 years of experience at PriceWaterHouseCoopers.
+- Financial Associate, 3 years of experience, currently working at PriceWaterHouseCoopers.
 - Bachelor of Business Administration MSc. in Finance.
 - Currently enrolled in Corporate Finance Institute's Program to enhance my skills in the fields: Data Analysis, Financial Modeling & Markets.
 
